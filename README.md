@@ -1,2 +1,1 @@
-
 Boston University Astronomical Society 
